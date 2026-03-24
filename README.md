@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @anmolbagati
 - 👀 I’m interested in anything IT
-- 💞️ I’m looking for a job as a business analyst
 - 📫 Reach me through my mail id - anmolbagati18@gmail.com
 
 <!---
